@@ -36,7 +36,7 @@ Nathan Li:
 
 Yujun Lu:
 
-Huayin Luo:
+Huayin Luo: I'm from Markham and I like reading, swimming, and baking in my free time.
 
 Maira Masroor:
 

@@ -12,7 +12,7 @@ Anh Dang Phuong:
 
 Hugo Fuhrer:
 
-Zihan Guo:
+Zihan Guo: Hi, I'm Zihan Guo. Nice to meet you all!
 
 Amanda He:
 

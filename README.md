@@ -60,7 +60,7 @@ Owen Wang:
 
 Yukun Wang:
 
-Yibing Xia:
+Yibing Xia: My name is Yibing, and I'm a student in JSC370.
 
 Richard Xu:
 

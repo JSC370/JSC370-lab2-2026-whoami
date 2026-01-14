@@ -8,7 +8,7 @@ Jeremy Chan:
 
 Wilson Chen:
 
-Anh Dang Phuong: Hi I'm Amy, a 3rd year data sci and computer science at UofT. I like crocheting and playing sudoku.
+Anh Dang Phuong: Hi I'm Amy, a 3rd year data sci and computer science student with econ minor at UofT. I like crocheting and playing sudoku. Let's chat!
 
 Hugo Fuhrer:
 

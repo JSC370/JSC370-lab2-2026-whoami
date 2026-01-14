@@ -46,7 +46,7 @@ Junwei Quan:
 
 Tomasz Sadkiewicz:
 
-Johnson Song: From Shanghai, studying CS/DS at UofT, interested in AI products + data, and I like photography and lifting.
+Johnson Song: From Shanghai, studying CS/DS at UofT, interested in AI products + data.
 
 Jiacan Sun:
 

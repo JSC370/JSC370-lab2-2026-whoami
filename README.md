@@ -48,7 +48,7 @@ Tomasz Sadkiewicz:
 
 Johnson Song:
 
-Jiacan Sun:
+Jiacan Sun: My name is Jiacan Sun. I'm a student in JSC370.
 
 Shannon Tanoto:
 

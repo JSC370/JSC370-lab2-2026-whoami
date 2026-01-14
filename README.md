@@ -66,7 +66,7 @@ Richard Xu:
 
 Xiran Yin:
 
-Yujie Zeng:
+Yujie Zeng: I am Jerry Zeng. Nice to meet you all!
 
 Chen Zhang:
 

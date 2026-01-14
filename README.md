@@ -46,7 +46,7 @@ Junwei Quan:
 
 Tomasz Sadkiewicz:
 
-Johnson Song:
+Johnson Song: From Shanghai, interested in AI products + data, and I like photography and lifting.
 
 Jiacan Sun:
 

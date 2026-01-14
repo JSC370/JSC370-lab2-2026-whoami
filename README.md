@@ -20,7 +20,7 @@ Rolland He:
 
 Kevin Hu:
 
-David Jiang:
+David Jiang: I like reading, playing piano, gaming, and eating.
 
 Yiwei Jiang:
 

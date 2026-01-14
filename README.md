@@ -6,7 +6,7 @@ Isaac Abell:
 
 Jeremy Chan:
 
-Wilson Chen:
+Wilson Chen: I'm Wilson from Shanghai and I like to eat hotpot.
 
 Anh Dang Phuong:
 

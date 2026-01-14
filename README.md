@@ -2,7 +2,7 @@
 
 TA Johnny Meng:
 
-Isaac Abell:
+Isaac Abell: I am from Whistler, BC. I like hiking
 
 Jeremy Chan:
 

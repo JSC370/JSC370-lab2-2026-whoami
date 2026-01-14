@@ -30,7 +30,7 @@ Shaoyi Ke:
 
 Christopher Li:
 
-Jack Li:
+Jack Li: My name is Jack Li. I am a computer science major with a passion for artificial intelligence and machine learning. In my free time, I enjoy snowboarding, swimming, and exploring new technologies.
 
 Nathan Li:
 

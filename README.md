@@ -34,7 +34,7 @@ Jack Li:
 
 Nathan Li:
 
-Yujun Lu:
+Yujun Lu: Hi, my name is Yujun and I'm a third-year student in data science specialist program.
 
 Huayin Luo:
 

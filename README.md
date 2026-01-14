@@ -22,7 +22,7 @@ Kevin Hu:
 
 David Jiang:
 
-Yiwei Jiang:
+Yiwei Jiang: My name is Yiwei Jiang. I love playing badminton. I have a cat named Crowley.
 
 Fuma Kano:
 

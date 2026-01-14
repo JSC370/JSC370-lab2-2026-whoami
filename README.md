@@ -40,7 +40,7 @@ Huayin Luo:
 
 Maira Masroor:
 
-Patuan Purba:
+Patuan Purba: I am from Indonesia
 
 Junwei Quan:
 

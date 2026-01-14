@@ -52,7 +52,7 @@ Jiacan Sun:
 
 Shannon Tanoto:
 
-Nevin Tsui:
+Nevin Tsui: I am Nevin (he/him) and I am currently considering the statistics minor!
 
 Eric Wang:
 

@@ -58,7 +58,7 @@ Eric Wang:
 
 Owen Wang:
 
-Yukun Wang:
+Yukun Wang: I am Yukun Wang, a third-year computer science student at the University of Toronto.
 
 Yibing Xia:
 

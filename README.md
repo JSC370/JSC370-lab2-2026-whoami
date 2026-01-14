@@ -38,7 +38,7 @@ Yujun Lu:
 
 Huayin Luo:
 
-Maira Masroor:
+Maira Masroor: I am Maira and I am a third year cs and data sci student. 
 
 Patuan Purba:
 

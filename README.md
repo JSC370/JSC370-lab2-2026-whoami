@@ -28,7 +28,7 @@ Fuma Kano:
 
 Shaoyi Ke:
 
-Christopher Li:
+Christopher Li: Hi everyone! I'm a third year doing DS Spec & CS Major
 
 Jack Li:
 

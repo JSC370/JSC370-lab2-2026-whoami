@@ -54,7 +54,7 @@ Shannon Tanoto:
 
 Nevin Tsui:
 
-Eric Wang:
+Eric Wang: My name is Eric Wang. I am a student in JSC370.
 
 Owen Wang:
 

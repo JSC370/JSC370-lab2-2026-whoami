@@ -40,7 +40,7 @@ Huayin Luo:
 
 Maira Masroor:
 
-Patuan Purba:
+Patuan Purba: I am from Indonesia
 
 Junwei Quan: My name is Junwei. I am a student of JSC370. I am taking CS and DS courses mainly. I love reinforcement learning and generative models.
 

@@ -6,7 +6,7 @@ Isaac Abell:
 
 Jeremy Chan: Hi, I'm Jeremy Chan. I'm in my third year and I'm from Hong Kong.
 
-Wilson Chen:
+Wilson Chen: I'm Wilson from Shanghai and I like to eat hotpot.
 
 Anh Dang Phuong: Hi I'm Amy, a 3rd year data sci and computer science student with econ minor at UofT. I like crocheting and playing sudoku. Let's chat!
 

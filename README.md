@@ -2,7 +2,7 @@
 
 TA Johnny Meng: My name is Johnny. I am a TA for JSC370.
 
-Isaac Abell:
+Isaac Abell: I am from Whistler, BC. I like hiking
 
 Jeremy Chan: Hi, I'm Jeremy Chan. I'm in my third year and I'm from Hong Kong.
 

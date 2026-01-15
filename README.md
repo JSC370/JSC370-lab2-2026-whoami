@@ -16,7 +16,7 @@ Zihan Guo: Hi, I'm Zihan Guo. Nice to meet you all!
 
 Amanda He:
 
-Rolland He:
+Rolland He: My name is Rolland, and I'm a third-year computer science student.
 
 Kevin Hu: peepoo dasdad adada daad
 

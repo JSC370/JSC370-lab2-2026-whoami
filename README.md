@@ -36,7 +36,7 @@ Nathan Li: Who am I? Why am I here?
 
 Yujun Lu: Hi, my name is Yujun and I'm a third-year student in data science specialist program.
 
-Huayin Luo:
+Huayin Luo: I'm from Markham and I like reading, swimming, and baking in my free time.
 
 Maira Masroor: I am Maira and I am a third year cs and data sci student. 
 

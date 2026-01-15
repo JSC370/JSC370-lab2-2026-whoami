@@ -46,7 +46,7 @@ Junwei Quan: My name is Junwei. I am a student of JSC370. I am taking CS and DS 
 
 Tomasz Sadkiewicz:
 
-Johnson Song:
+Johnson Song: From Shanghai, interested in AI products + data, and I like photography and lifting.
 
 Jiacan Sun:
 

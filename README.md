@@ -66,7 +66,7 @@ Richard Xu: Who else has six lectures on Monday like me?
 
 Xiran Yin:
 
-Yujie Zeng:
+Yujie Zeng: I am Jerry Zeng. Nice to meet you all!
 
 Chen Zhang: My name is Chen, and my preferred first name is Alex. I am a data science and computer science student with a keen interest in artificial intelligence and machine learning. In my free time, I enjoy hiking, reading sci-fi novels, and experimenting with new programming languages.
 

@@ -60,7 +60,7 @@ Owen Wang: I eat dirt
 
 Yukun Wang: I am Yukun Wang, a third-year computer science student at the University of Toronto.
 
-Yibing Xia:
+Yibing Xia: My name is Yibing, and I'm a student in JSC370.
 
 Richard Xu: Who else has six lectures on Monday like me?
 

@@ -42,7 +42,7 @@ Maira Masroor:
 
 Patuan Purba:
 
-Junwei Quan:
+Junwei Quan: My name is Junwei. I am a student of JSC370. I am taking CS and DS courses mainly. I love reinforcement learning and generative models.
 
 Tomasz Sadkiewicz:
 

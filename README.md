@@ -38,7 +38,7 @@ Yujun Lu: Hi, my name is Yujun and I'm a third-year student in data science spec
 
 Huayin Luo:
 
-Maira Masroor:
+Maira Masroor: I am Maira and I am a third year cs and data sci student. 
 
 Patuan Purba: I am from Indonesia
 

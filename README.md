@@ -26,7 +26,7 @@ Yiwei Jiang:
 
 Fuma Kano:
 
-Shaoyi Ke:
+Shaoyi Ke: I am Shaoyi. Nice to meet you all.
 
 Christopher Li:
 

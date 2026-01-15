@@ -58,7 +58,7 @@ Eric Wang: My name is Eric Wang. I am a student in JSC370.
 
 Owen Wang: I eat dirt
 
-Yukun Wang:
+Yukun Wang: I am Yukun Wang, a third-year computer science student at the University of Toronto.
 
 Yibing Xia:
 

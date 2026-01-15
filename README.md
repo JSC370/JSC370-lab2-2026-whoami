@@ -20,7 +20,7 @@ Rolland He:
 
 Kevin Hu: peepoo dasdad adada daad
 
-David Jiang:
+David Jiang: I like reading, playing piano, gaming, and eating.
 
 Yiwei Jiang: My name is Yiwei Jiang. I love playing badminton. I have a cat named Crowley.
 

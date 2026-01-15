@@ -8,7 +8,7 @@ Jeremy Chan: Hi, I'm Jeremy Chan. I'm in my third year and I'm from Hong Kong.
 
 Wilson Chen:
 
-Anh Dang Phuong:
+Anh Dang Phuong: Hi I'm Amy, a 3rd year data sci and computer science student with econ minor at UofT. I like crocheting and playing sudoku. Let's chat!
 
 Hugo Fuhrer:
 

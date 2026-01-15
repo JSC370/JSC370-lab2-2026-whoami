@@ -48,7 +48,7 @@ Tomasz Sadkiewicz:
 
 Johnson Song: From Shanghai, interested in AI products + data, and I like photography and lifting.
 
-Jiacan Sun:
+Jiacan Sun: My name is Jiacan Sun. I'm a student in JSC370.
 
 Shannon Tanoto: My name is Shannon.
 
